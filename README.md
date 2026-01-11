@@ -1,1 +1,1 @@
-# sk-point-talwara
+# SK Point talwara
