@@ -1,1 +1,0 @@
-# sk-point-talwara
